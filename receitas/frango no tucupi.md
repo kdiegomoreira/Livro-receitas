@@ -18,3 +18,6 @@
 3. Coloque o tucupi para ferver com os dentes de alho, quando estiver fervendo coloque o jambu e a chicória e deixe cozinhar mas um pouco, mais ou menos uns 10 minutos.
 4. Coloque o frango assado dentro do tucupi e deixe cozinhar uns 20 minutos.
 5. Servir com arroz branco e uma pimentinha amarela.
+
+##  Links Úteis
+[Imagem da receita] (https://1.bp.blogspot.com/-hj26fzZaNa0/WDmaIcdePPI/AAAAAAAAgvQ/cSbhc83UB4obrquqIp73lUoa8ioHH4U4ACLcB/s1600/frango%2Bcom%2Btucupi.jpg)

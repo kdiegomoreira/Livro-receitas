@@ -1,5 +1,5 @@
 # LIVRO DE RECEITAS :brazil:
 
-Oi, tudo bom? Bem vindo ao livro do Pará" :ok_hand:
+Oi, tudo bom? Bem vindo ao livro de receitas.
 
 - Frango no Tucupi

@@ -20,4 +20,4 @@
 5. Servir com arroz branco e uma pimentinha amarela.
 
 ##  Links Úteis
-[Imagem da receita] (https://1.bp.blogspot.com/-hj26fzZaNa0/WDmaIcdePPI/AAAAAAAAgvQ/cSbhc83UB4obrquqIp73lUoa8ioHH4U4ACLcB/s1600/frango%2Bcom%2Btucupi.jpg)
+[Imagem da receita](https://1.bp.blogspot.com/-hj26fzZaNa0/WDmaIcdePPI/AAAAAAAAgvQ/cSbhc83UB4obrquqIp73lUoa8ioHH4U4ACLcB/s1600/frango%2Bcom%2Btucupi.jpg)
